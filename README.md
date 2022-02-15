@@ -1,0 +1,2 @@
+# kodi
+💥Embrace 2022 with AWS Skills &amp; Take Your Career to Great Heights!! Learn AWS course for Free.🔥 If you want to fast-track your career then you should strongly consider AWS. Today cloud computing is no longer optional but critical to the success of some of the biggest enterprises on earth. The AWS course is completely oriented towards the practical applications and hence gives you a clear advantage. Watch Now AWS course : https://www.youtube.com/watch?v=cJLJrLlZ8no 
